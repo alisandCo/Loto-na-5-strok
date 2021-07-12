@@ -1,0 +1,1 @@
+# Loto-na-5-strok
